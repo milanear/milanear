@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there,I;m Mila - aka Milanear 👋
 ## About me :
 - 🔭 I’m currently working on jobseeker
 - 🌱 I’m currently learning Administration and Sales Clerk
